@@ -1,4 +1,4 @@
-![Imgur](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a2/Bubble_Tea.png/220px-Bubble_Tea.png)
+![Imgur](https://video-images.vice.com/articles/602394b405510e009cdf7711/lede/1612946118577-vice-editorial-milk-tea-alliance-2021.jpeg)
 
 |University Project|[![CC0](https://licensebuttons.net/p/zero/1.0/88x31.png)](https://creativecommons.org/publicdomain/zero/1.0/)|
 |----|----|
